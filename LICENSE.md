@@ -1,4 +1,4 @@
-#  
+#  hidden Script for enter brainrot heads is the best enter brainrot heads Script, featuring no clip and auto-collect. Safe and powerful for all your
 
 
 
